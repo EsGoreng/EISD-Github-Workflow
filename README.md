@@ -2,4 +2,4 @@
 
 Study Group SD Week 1
 
-Nama Saya Akhdan
+Nama Saya Itsna Akhdan Fadhil
